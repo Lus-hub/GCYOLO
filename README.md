@@ -9,4 +9,4 @@ Currently, my research paper is in the submission phase. To protect the original
 Thank you for your understanding and support!
 
 Best regards,  
-LuShuang
+Shuang Lu
